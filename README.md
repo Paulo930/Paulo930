@@ -1,1 +1,1 @@
-# Hey, I'm there Paulo Eduardo 👋
+# Hey, I'm Paulo Eduardo 👋
